@@ -1,0 +1,3 @@
+- monke together stronk
+- join monke
+- https://discord.gg/3DEmNtCKAR
